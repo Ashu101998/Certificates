@@ -1,2 +1,2 @@
 # Certificates
-"The Wall of Merit: Where Hard Work Meets Recognition."
+"Charting Success: Certificates that Mark Personal and Professional Triumphs."
